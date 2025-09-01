@@ -29,7 +29,7 @@
 ---
 
 ## 📫 Connect with Me
-- 💼 [LinkedIn](https://www.linkedin.com)(www.linkedin.com/in/syed-burhan-shah-23024935b)   
+- 💼 [LinkedIn](https://www.linkedin.com) (www.linkedin.com/in/syed-burhan-shah-23024935b)   
 - ✉️ Email: **syedburhan2007@gmail.com**
 
 ---
